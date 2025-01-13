@@ -1,6 +1,6 @@
-### Hey, I am sreeman 👋
+### Hey, I am Sreeman Reddy 👋🏻
 
-I am a Creator and an AI Scientest.
+online, offline; here, there.
 
 ## Reach me 📫
-You can reach me via my email `sreemanthink@gmail.com` or via Discord `sreeman.gg`.
+You can reach me via my email `sreemanthink@gmail.com` or via Twitter `sreemanrp`.

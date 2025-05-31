@@ -1,5 +1,3 @@
-### Hey, I am artist 👋🏻
-
 online, offline; here, there.
 
 ## Reach me 📫
